@@ -1,0 +1,1 @@
+Ainda tenho duvidas, mas, com experiencia e prática vou acabar por entender tudo.
